@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Yo What's Up !
 
-I'm glad you are here. I plan to talk about ...
+Gw adill "L" nya dua. gatau mau nulis apa, ini nyoba doang :)
